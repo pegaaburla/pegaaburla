@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - ### 😄 @kakarthur._ ig
 - ### ⚡ @kakarthur_ ttk
 - ## 🫵 _estou me desenvolvendo na linguagem java script_
-- _para entrar em contato comigo_ 0001117542415sp@al.educacao.sp.gov.br
+- 👀 _para entrar em contato comigo_ 0001117542415sp@al.educacao.sp.gov.br
 
